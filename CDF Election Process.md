@@ -25,7 +25,7 @@ Elections will be conducted by CDF Staff. To increase the transparency, election
 
 ## Nominations
 
-Nomination period is open for two weeks prior to the election cycle. 
+Nomination period is open for one weeks prior to the election cycle. 
 
 
 ### How to Nominate
