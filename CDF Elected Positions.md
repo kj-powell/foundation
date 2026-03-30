@@ -32,7 +32,7 @@ Current Representative: Mark Waite
 
 ### Treasurer/ Budget Committee Chair
 
-Term: 2 years
+Term: 2 years 2/20/2026-2/19/2027
 
 Current Representative: Mark Waite
 
